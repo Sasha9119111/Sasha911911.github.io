@@ -1,1 +1,1 @@
-# Word-Duo-parody
+# Word
